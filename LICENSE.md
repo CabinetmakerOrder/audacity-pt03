@@ -1,4 +1,4 @@
-# 
+# Professional Vegas Pro for PC plugins is the best Vegas Pro for PC plugins with shape-layers and vector-painting. Safe, reliable, and optimized for maximum performance.
 
 
 
